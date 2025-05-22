@@ -1,0 +1,13 @@
+---
+{"dg-publish":true,"permalink":"/het-transformeren-en-poetiseren-van-puin/hyper-object/","dgPassFrontmatter":true}
+---
+
+Een Hyper-Object is een term die transformatie, poëtisering, verwondering en maatschappijkritische zaken samenbrengt. Het vat alles op een bepaalde manier samen, maar ontkracht het ook tegelijkertijd. Maar wat is een hyper-object precies? Het is het idee dat bepaalde fenomenen of dingen zo groot zijn in tijd en ruimte dat we ze als mens moeilijk kunnen bevatten.
+
+één van de meest relevante voorbeelden hier van is de opwarming van de aarden. zwarte gaten. deze ellementen dragen op zijn beurt weer een vorm van verwonderingin zich. we moeten het gewoon zien. we moeten er dus wel belangsteling voor hebben.
+
+[[Bronnen\|Bronnen]](Morton, T. (2013). _Hyperobjects: Philosophy and ecology after the end of the world_.)
+
+Als deze zaken zo groot zijn dat we ze niet kunnen vatten, zijn we dan niet verloren? Alles we dit als alchemist benaderen die op zoek is naar het eeuwige leven, de steen der wijzen. Met talrijke theorieën over hoe de wereld in elkaar zit, zowel als filosoof en wetenschapper. is dit de houding die we moeten aannemen om de zwaarte rond het hyper-object te ontkrachten, juist omdat er in de alchemist een soort handelen zit. Het handelen dat een kunstenaar ook doet: de drang om naar iets te zoeken dat er nu niet is, het trachten te vangen wat mogelijk niet te vangen is. Om dan verwonderd te zijn door verder te zijn geraakt dan het eigen kunnen. maar vooral de drang hebben tot de creatie want zonder die drang of zoals fread het noemt zonder enthousme zouden we het niet doen het is drang om iets te berijken en wat je wil berijken dat het zo bezonder maakt Freud zei: enthousiasme komt niet door wat we al hebben, maar door wat we willen bereiken. Binnen het les geven. sturen we de leerling richting het geen dat hij zelf wil bereiken. maar het is de drang of de motivatie die nodig is om tot het transformeren over te gaan. of zoals Biesta aangeeft.
+
+Het creëren, communiceren en lesgeven moeten dus niet worden opgevat als processen die kunnen worden gecontroleerd door de schepper, de communicator of de leraar. Juist in deze zin brengen ze altijd een risico met zich mee. Het aangaan van dit risico—en misschien kunnen we zelfs zeggen, het omarmen van het risico—is wat dergelijke processen educatief relevant en betekenisvol maakt. Het geeft ze een educatieve "kracht", zij het geen sterke metafysische kracht maar eerder een zwakke existentiële kracht.

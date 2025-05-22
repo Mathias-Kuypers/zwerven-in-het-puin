@@ -2,26 +2,20 @@
 {"dg-publish":true,"dg-home":null,"permalink":"/verwonderen/","dgPassFrontmatter":true}
 ---
 
-Verwondering en nieuwsgierigheid zijn natuurlijke eigenschappen. Een driejarig kind ziet overal wonderen, stelt eindeloos vragen, en gebruikt volop de verbeelding. Met wat hout wordt een oceaanschip gebouwd, een hoed en een borstel transformeren in koninklijke attributen. Als we ouder worden, verliezen we vaak deze openheid. De dagelijkse routine verdrijft de verwondering, en we zien dingen zoals ze zijn, niet zoals ze kunnen zijn. Dit verlies is betekenisvol. Verwondering geeft leven richting en zin. Het drijft ons om te groeien, grenzen te verleggen en voldoening te vinden. Zonder verwondering wordt het leven vlak en betekenisloos. Gelukkig kunnen we verwondering opnieuw aanleren door bewust aandacht te geven aan onze omgeving. Einstein zei het treffend: je kunt leven alsof niets een wonder is, of alsof alles een wonder is. De keuze is aan ons.
+Hoe ontstaat verwondering? In het boek "The Matter of Wonder" van Biernacki, Loriliai vloeit het voort vanuit het ik. Als we ons verwonderen, wordt ons "ik" één met alles wat we zien. Dit "ik" is een natuurlijke kracht die vanzelf in ons opkomt, als een oerkracht die in alle mensen zit. Je zou kunnen zeggen dat alles wat we zien en ervaren verbonden is met hoe we onszelf voelen en beleven. Dit is een diep inzicht dat moeilijk in woorden te vatten is.
+
+We moeten dus dicht bij onszelf blijven, anders verliezen we onze verwondering.
+
+Hoe kunnen we verwondering terugvinden in ons leven? In haar boek 'Ode aan de verwondering' legt Caroline Pauwels uit dat verwondering en nieuwsgierigheid heel natuurlijk zijn. Kijk maar naar een kind van drie jaar: het ziet overal wonderen, stelt onophoudelijk vragen en heeft een rijke fantasie. In hun ogen wordt een simpel stuk hout een groot schip, en met een hoed en borstel spelen ze meteen voor koning of koningin.
+
+Naarmate we ouder worden, raken we deze openheid vaak kwijt. We zitten vast in onze dagelijkse routine en zien dingen alleen nog zoals ze zijn, niet meer zoals ze zouden kunnen zijn.
+
+Dit is jammer, want verwondering maakt ons leven rijker. Het helpt ons om te groeien, nieuwe dingen te proberen en meer voldoening te vinden in wat we doen. Zonder verwondering wordt het leven saai en betekenisloos.
+
+Het goede nieuws is dat we verwondering opnieuw kunnen leren. Dit kan door bewuster naar onze omgeving te kijken. Einstein zei het mooi: je kunt kiezen hoe je in het leven staat - alsof niets bijzonder is, of alsof alles bijzonder is. Die keuze ligt bij onszelf.
+
+het gedicht in het begin van het boek maakt het sprekend duidelijk
 
 'fiets je zit achterop dus zie je een rug en niet wat er komt als je dan roept zeg mij wat er is zegt een stem de weg, kind, de weg op een dag denk je klaar, ik heb het gehad met dat zicht van opzij er is altijd wel iets wat ik nog niet kan nog lang niet weet of beter niet zeg mag ik nu het stuur dan slingert het pad en tingelt mijn bel ik ga naar een plek waar ik nooit ben geweest en fiets ik verkeerd is dat pech, maar niet erg wat ik zie hou ik bij een berg heeft een top en de wereld krijgt mij — Bart Moeyaert
 
-het gedicht van Moeyaert doet ons na denken. over de drang van verwondering. Of de energie die hier van uitgaat hier duidelijk vanuit een frustratie. De humor in dit gedicht maakt alles lichter. het zet de frustratie om in iets positiefs. Ode aan de verwondering Caroline Pauwel
-
-Fragment uit Ode aan de verwondering Caroline Pauwels Er zijn mogelijk auteursrechten op dit materiaal van toepassing.
-
-Fragment uit Ode aan de verwondering Caroline Pauwels Er zijn mogelijk auteursrechten op dit materiaal van toepassing.
-
-> 'Maar verwondering en nieuwsgierigheid zijn niet voorbehouden aan wetenschappers en kunstenaars. Van nature zijn we allemaal nieuwsgierig. Als je drie bent, is alles een wonder. Alles wil je weten, alles is even interessant. Waarom is de zee blauw? Waarom wordt het donker? Waarom is die meneer kaal? Waarom, waarom, waarom. En op je verbeelding staat al evenmin een rem. Met drie stukken hout bouw je een boot en'
-> 
-> Fragment uit Ode aan de verwondering Caroline Pauwels Er zijn mogelijk auteursrechten op dit materiaal van toepassing.
-
-The “I” which is wonder is the self of all that appears. The “I” is the spontaneous, innate power, the mantra of the highest goddess of speech. As it is said, “the essence of all visible phenomena rest within the ‘I’-feeling. This is a secret beyond all secrets.”
-
-—Abhinavagupta, Īśvara Pratyabhijñā Vivṛti Vimarśinī
-
-What makes certain molecular configurations stand out from the multitude of possibilities seems to be that they are capable of developing into something that strikes us as rather marvelous, namely a world of living creatures. But there is no conceivable reason that blind forces of nature or physical attributes should be biased toward the marvelous.
-
-—Thomas Nagel, Mind and Cosmos, quoting Roger White
-
-Zonder enthousiasme zouden we niet eens proberen om nieuwe dingen te bedenken. Zoals
+Het gedicht van Moeyaert zet ons aan het denken over de drang naar verwondering. De energie die hieruit voortvloeit komt duidelijk voort uit een frustratie. De humor in dit gedicht verlicht echter alles en transformeert de frustratie naar iets positiefs. Ode aan de verwondering Caroline Pauwel
