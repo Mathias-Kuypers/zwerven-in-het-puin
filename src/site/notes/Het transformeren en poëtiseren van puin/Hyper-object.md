@@ -15,3 +15,9 @@ Het is diezelfde drang die ook kunstenaars kenmerkt: de wil om te creëren, om t
 Ook binnen het onderwijs begeleiden we de leerling richting datgene wat hij of zij zelf wil bereiken. Die intrinsieke motivatie vormt de motor van elke transformatie. Of, zoals Gert Biesta het stelt:
 
 > “Het creëren, communiceren en lesgeven moeten dus niet worden opgevat als processen die kunnen worden gecontroleerd door de schepper, de communicator of de leraar. Juist in deze zin brengen ze altijd een risico met zich mee. Het aangaan van dit risico – en misschien kunnen we zelfs zeggen, het omarmen ervan – is wat dergelijke processen educatief relevant en betekenisvol maakt. Het geeft ze een educatieve 'kracht', zij het geen sterke metafysische kracht, maar eerder een zwakke existentiële kracht.”
+
+Wij zijn in hyperobjecten ondergedompeld, ook al weten we niet precies wat dat betekent. We zien die objecten ook niet, in tegenstelling tot de gewone,  
+normale dingen in de wereld. Hooguit vangen we er nu en dan zijdelings een glimp van op, bijvoorbeeld als we merken dat er nooit eerder een warmere  
+meimaand in De Bilt is geweest (een glimp van de opwarming van de aarde of van de klimaatverandering) of als we merken dat gezond draaiende bedrijven  
+in Nederland gesloten worden door hun Amerikaanse eigenaren (een glimp van kapitalisme of globalisering).  
+Bureaucratie is een inktvis, Boek van René ten Bos, 2015.

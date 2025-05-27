@@ -28,6 +28,6 @@ Het poëtiseren beschrijft hoe wij als mens deze transformatie interpreteren en 
 Deze benadering vraagt om een fundamentele openheid en verwondering - eigenschappen die we als kind natuurlijk bezitten maar vaak verliezen naarmate we ouder worden⁠
 ⁠Door bewust deze verwonderende blik te cultiveren, kunnen we de waarde en potentie zien in wat anderen als waardeloos beschouwen.
 #  Relevant
-[[Artistieke projecten/-Artistieke projecten\|-Artistieke projecten]]
-[[Kunstenaars/-kunstenaars\|-kunstenaars]]
+[[Artistieke projecten/Artistieke projecten\|Artistieke projecten]]
+[[Kunstenaars/kunstenaars\|kunstenaars]]
 [[Bronnen\|Bronnen]]

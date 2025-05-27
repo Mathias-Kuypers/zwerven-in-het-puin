@@ -1,0 +1,7 @@
+---
+{"dg-publish":true,"permalink":"/het-transformeren-en-poetiseren-van-puin/schaal/","dgPassFrontmatter":true}
+---
+
+Door een verzameling van voorwerpen treedt er een vorm van op. Dit duidt op een vorm van geloofwaardigheid. Een goed voorbeeld hiervan is het _Center for the Living Things_(sinds 2016), opgericht door de Poolse kunstenares Diana Lelonek. Zij onderzoekt de nieuwe transformatie van de biosfeer naar de plastisfeer - de levende micro- en macrobiotische gemeenschappen die zich nu aanpassen aan plastic. In haar veldonderzoek bracht ze stadsafval en illegale stortplaatsen in kaart, waar deze omgevingen hybride habitats zijn geworden voor lokale flora en fauna. Ze creëerde een ecosysteem van ruderale planten en synanthropen (soorten die zich aanpassen aan kunstmatige habitats) in een ongebruikte kas van de Botanische Tuinen in Poznań. Hier groeien planten op weggegooide handtassen en versleten dweilen, en bedekt mos het piepschuim en polyester tapijten. Door deze in de taxonomische regimes van zeer beheerde botanische tuinen te plaatsen, destabiliseerde de kunstenares de gevestigde classificaties van wetenschappelijke kennis. Hiermee toonde ze de onhoudbare scheiding aan tussen natuurlijke en kunstmatige categorieën in een wereld die is getransformeerd door menselijke interventies.
+
+_(Fowkes, M., & Fowkes, R. (2022). Art and climate change.)_

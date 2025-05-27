@@ -13,7 +13,7 @@ Deze benadering vraagt om een fundamentele openheid en verwondering - eigenschap
 [[Het transformeren en poëtiseren van puin/Materialiteit\|Materialiteit]]
 [[Het transformeren en poëtiseren van puin/Verwonderen\|Verwonderen]]
 [[Het transformeren en poëtiseren van puin/Puin\|Puin]]
-[[Het transformeren en poëtiseren van puin/schaal\|schaal]]
+[[Het transformeren en poëtiseren van puin/Schaal\|Schaal]]
 [[Het transformeren en poëtiseren van puin/Tijd\|Tijd]]
 
 
