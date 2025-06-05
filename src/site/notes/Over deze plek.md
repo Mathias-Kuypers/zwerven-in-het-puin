@@ -26,4 +26,4 @@ we onderzoeken hoe puin kan worden getransformeerd en gepoëtiseerd tot iets wat
 
 # Relevant
 
-[[Artistieke projecten\|Artistieke projecten]] [[kunstenaars\|kunstenaars]] [[Bibliografie\|Bibliografie]]
+[[Artistieke projecten\|Artistieke projecten]] [[kunstenaars/kunstenaars\|kunstenaars]] [[Bibliografie\|Bibliografie]]

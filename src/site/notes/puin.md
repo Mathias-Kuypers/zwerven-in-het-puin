@@ -20,7 +20,7 @@ Ook Jelle Reumer schrijft hierover in _een prachtige puinhoop:
 
 Kunnen we hieruit afleiden dat de mens zich thuis voelt in het vuil? Of ben ik de enige die dit fascinerend vindt? Gaan we er simpelweg van uit dat het afval toch wel wordt opgeruimd door de reinigingsdienst? Hebben we zoveel vertrouwen in onze welvaartsstaat dat we ons niet meer bewust zijn van onze handelingen? Moet onze houding veranderen? Moeten we leren om meer mogelijkheden te zien in objecten en materialen, en openstaan voor andere manieren van kijken en denken?
 
-Of is het wegwerpen van afval en het vernietigen van objecten, micro-organismen en zelfs natuur een uitlaatklep? Zoals  [[Björk\|Björk]] beschrijft in haar nummer _Hyperballad_ (1995), waarin ze voor zonsopgang objecten van een klif gooit als manier om met haar innerlijke pijn om te gaan. (Mackay, E. (2017,))
+Of is het wegwerpen van afval en het vernietigen van objecten, micro-organismen en zelfs natuur een uitlaatklep? Zoals  [[kunstenaars/Björk\|Björk]] beschrijft in haar nummer _Hyperballad_ (1995), waarin ze voor zonsopgang objecten van een klif gooit als manier om met haar innerlijke pijn om te gaan. (Mackay, E. (2017,))
 
 Of gaat deze gedachtegang te ver? Er valt immers veel te leren uit afval, zoals beschreven in _De ontologie van het afval_ (Streven, jrg. 66, 1999):
 
