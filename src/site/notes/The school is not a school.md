@@ -13,3 +13,6 @@ Deze aanpak biedt een vruchtbaar kader voor onderzoek. Het creëert ruimte voor 
 
 Wat deze werkvorm bijzonder waardevol maakt, is de autonomie die ze biedt. In tegenstelling tot formele onderwijsstructuren, waar men zich moet verhouden tot bestaande normen en institutionele grenzen, laat _De School_ toe om op een vrije en onderzoekende manier met [[educatie\|educatie]] en kunst om te gaan. Deze autonomie is essentieel voor het ontwikkelen van vernieuwende praktijken, en precies daar schuilt de kracht van _De School_: in het voortdurend bevragen van bestaande verhoudingen tussen stad, kunst en onderwijs, en in het voorstellen van nieuwe manieren om deze te verbeelden en te herdenken.
 
+[[Bibliografie\|Bibliografie]]
+
+Theschool.city. (z.d.). Website. Geraadpleegd 6 juni 2025, van [https://theschool.city](https://theschool.city)

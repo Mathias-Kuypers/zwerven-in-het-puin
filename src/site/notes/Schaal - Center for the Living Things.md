@@ -11,3 +11,7 @@ In haar veldonderzoek bracht ze stadsafvallocaties en illegale stortplaatsen in 
 Hier ontvouwt zich een bijzonder fenomeen: planten groeien op weggegooide handtassen en dweilen, terwijl mossen zich vasthechten aan piepschuim en synthetische tapijten.
 
 Door deze organismen te presenteren binnen de traditionele taxonomie van botanische tuinen, stelt Lelonek vragen bij de bestaande classificatiesystemen van wetenschappelijke kennis. Haar werk legt de kunstmatige lijn bloot tussen wat wij als ‘natuurlijk’ en ‘kunstmatig’ beschouwen in een wereld die onherroepelijk getekend is door [[puin\|menselijke tussenkomst]].
+
+[[Bibliografie\|Bibliografie]]
+
+Center for the Living Things. (z.d.). _Diana Lelonek_. Geraadpleegd 6 juni 2025, van [http://dianalelonek.com/portfolio/center-for-the-living-things/](http://dianalelonek.com/portfolio/center-for-the-living-things/)
