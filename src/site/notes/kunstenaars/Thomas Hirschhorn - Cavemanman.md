@@ -29,7 +29,7 @@ Het werk bestaat uit meerdere lagen:
 Hirschhorns kunstwerk is meer dan één enkel idee; het is een samenspel van gedachten en tegenstellingen. Het werk fascineert door zijn veelzijdigheid: tastbaar maar ongrijpbaar, alledaags in materiaal maar groots in impact. En hoewel het vergankelijk is, raakt het aan tijdloze thema's.
 
 (Hirschhorn, 2013)
-![[Pasted image 20250606104638.png]]
+![[Pasted image 20250606104638.png\|Pasted image 20250606104638.png]]
 
 
 [[Bibliografie\|Bibliografie]]
