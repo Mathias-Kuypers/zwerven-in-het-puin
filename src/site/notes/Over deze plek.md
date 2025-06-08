@@ -24,6 +24,17 @@ Om de toeschouwer, lezer en kunstliefhebber wegwijs te maken, worden hieronder d
 
 we onderzoeken hoe puin kan worden getransformeerd en gepoëtiseerd tot iets wat verwondering oproept. Het vertrekpunt is de observatie van kinderen die spontaan afval omtoveren tot iets nieuws, zoals het beschilderen van flessen om er muziekinstrumenten van te maken⁠ Door puin te transformeren ondergaat het een verandering die het een nieuwe waarde geeft. Deze transformatie zorgt ervoor dat we objecten vanuit een ander perspectief gaan bekijken, waardoor we onszelf en de samenleving kritisch bevragen⁠ Het poëtiseren beschrijft hoe wij als mens deze transformatie interpreteren en hoe het object hierdoor wordt overstegen. Het stelt ons in staat om puin op een positieve manier te benaderen, waarbij het getransformeerde object nieuwe emoties en betekenissen kan overdragen⁠ Deze benadering vraagt om een fundamentele openheid en verwondering - eigenschappen die we als kind natuurlijk bezitten maar vaak verliezen naarmate we ouder worden⁠ ⁠Door bewust deze verwonderende blik te cultiveren, kunnen we de waarde en potentie zien in wat anderen als waardeloos beschouwen.
 
+# Besluit
+Dit rizoom vormt het fundament van een onderzoekende praktijk waarin we afval niet langer benaderen als restmateriaal, maar als bron van verwondering. Elk element dat in deze tekststructuur wordt aangereikt van hyperobjecten tot poëtisch puin, van free jazz tot spel is bedoeld als aanzet tot nadenken en reflectie. Niet om definitieve antwoorden te formuleren, maar om ruimte te scheppen: voor verbeelding, voor traagheid, voor aandacht.
+
+Tegelijkertijd is dit fundament meer dan een reflectie; het is ook een werkmiddel, een gereedschap. Wat zich hier heeft opgebouwd aan beelden, gedachten, associaties, materiaalsporen en verwijzingen, groeit uit tot een tool die ik in de toekomst bewust zal inzetten binnen mijn lespraktijk. In die zin is het rizoom ook letterlijk een tweede brein: een geheugenstructuur die me toelaat verbanden te leggen, terug te grijpen naar kunstenaars, stromingen, filosofische ideeën of materialen, en van daaruit nieuwe paden te openen.
+
+Het stadium waarin het rizoom zich nu bevindt, draait sterk rond het transformeren en poëtiseren van puin – als praktijk, als metafoor, als onderwijsinstrument. In de toekomst zal dit verder aangevuld en verrijkt worden, mogelijk ook met nieuwe thematieken die het rizoom verbreden. Maar belangrijker is dat het in deze vorm al werkt: als open structuur, als levend archief, als pedagogisch kompas. In die zin voel ik me geslaagd in mijn opzet.
+
+Graag zou ik dit geheel in de toekomst ook openstellen voor een breder publiek. Misschien als digitale publicatie, als lesmateriaal of als gedeeld referentiekader. Maar eerlijk is eerlijk: die stap vraagt nog wat moed. De kwetsbaarheid van deze vorm – haar voorlopigheid, haar veelheid, haar onaffe aard – maakt het lastig om een "definitieve" versie te tonen. Toch geloof ik dat precies daarin haar kracht schuilt.
+
+
+
 # Relevant
 
 [[Artistieke projecten\|Artistieke projecten]] [[kunstenaars/kunstenaars\|kunstenaars]] [[Bibliografie\|Bibliografie]]

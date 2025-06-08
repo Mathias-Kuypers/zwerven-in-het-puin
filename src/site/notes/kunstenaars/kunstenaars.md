@@ -10,4 +10,4 @@
 [[kunstenaars/Koyaanisqatsi\|Koyaanisqatsi]]
 [[kunstenaars/Maarten Vanden Eynde-Plastic Reef\|Maarten Vanden Eynde-Plastic Reef]]
 [[kunstenaars/Thomas Hirschhorn - Cavemanman\|Thomas Hirschhorn - Cavemanman]]
-
+[[kunstenaars/Yoko Ono\|Yoko Ono]]

@@ -4,7 +4,7 @@
 
 Dit is een onderdeel van een onderzoek waaraan ik heb deelgenomen voor de materialenbank. Dit is een onderdeel van de school, waarin werd gevraagd verschillende materialen te onderzoeken. Ik koos voor afval en hoe we het belang hiervan kunnen inzien.
 
-Vervolgens besloot ik inspiratie te halen bij [[Porjecten/Yoko Ono\|Yoko Ono]]'s "Grapefruit".
+Vervolgens besloot ik inspiratie te halen bij [[kunstenaars/Yoko Ono\|Yoko Ono]]'s "Grapefruit".
 
 Zo bedacht ik verschillende mogelijkheden om met afval om te gaan en het een nieuwe betekenis en waarde te geven. Dit alles op een speelse, niet-dwingende manier.
 ![materiaal boekje.jpg](/img/user/materiaal%20boekje.jpg)

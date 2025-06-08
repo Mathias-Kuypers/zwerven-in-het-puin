@@ -7,6 +7,8 @@ Abbott, E. A. (2020). _Flatland: A romance of many dimensions_. Penguin Classics
 
 babelfgw. (2023, september 3). Het afval van schoonheid: Garbage poetry. _Babel Magazine_.  [[puin\|puin]][https://babelmagazine.nl/2023/09/03/het-afval-van-schoonheid-garbage-poetry/](https://babelmagazine.nl/2023/09/03/het-afval-van-schoonheid-garbage-poetry/)
 
+Barthes, R., Lavers, A., & Barthes, R. (2006). _Mythologies_ (47. [print.]). Hill and Wang.
+
 Barthes, Roland. _Mythologies_. Parijs: Éditions du Seuil, 1977.
 
 Biernacki, L. (2023). _The matter of wonder: Abhinavagupta’s panentheism and the new materialism_. Oxford University Press.
@@ -46,6 +48,8 @@ Pauwels, C., & Moeyaert, B. (met Devynck, J., & Medaer, J.). (2023). _Ode aan de
 Peuplierjaime (Regisseur). (2011, juli 16). _South Bank Show—Björk part 4_ [Video recording]. [https://www.youtube.com/watch?v=J1rvrM00ynA](https://www.youtube.com/watch?v=J1rvrM00ynA)
 
 Reumer, J. W. F. (2010). _Een prachtige puinhoop: Een bioloog kijkt naar de wereld_. Contact.[[puin\|puin]]
+
+Roob, A. (2023). _Alchemy & mysticism: The hermetic museum_. Taschen.
 
 Schwitters, K. (with Sprengel-Museum). (2007). _Merzgebiete: Kurt Schwitters und seine Freunde; [Sprengel-Museum Hannover, 8. Oktober 2006 - 4. Februar 2007; Museum Boijmans Van Beuningen, Rotterdam, 24. Februar - 13. Mai 2007]_ (K. Orchard, Red.).
 
