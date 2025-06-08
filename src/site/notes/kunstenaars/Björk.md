@@ -4,11 +4,11 @@
 
 [[kunstenaars/Björk\|Björk]] is natuurlijk bekend van haar muziek, maar ook beeldend is ze bijzonder sterk. Haar videoclips zijn, zoals ze zelf aangeeft, niet louter promotiemateriaal, maar helpen de toeschouwer om haar teksten beter te begrijpen (Björk, z.d.).
 
-In het nummer  Hyperballad zingt ze metaforisch over hoe ze ’s ochtends [[puin\|puin]] en afval van een klif gooit. In de context van serieuze muziek brengt dit een onverwachte vorm van humor. Het is een manier van loslaten destructief, maar ook helend. Haar Jslandse roots en diepe verbondenheid met de natuur versterken de zeggingskracht van het geheel. Thema’s als [[puin\|puin]], [[ecologie\|ecologie]] en transformatie komen in haar muziek op poëtische wijze samen.
+In het nummer Hyperballad zingt ze metaforisch over hoe ze ’s ochtends [[puin\|puin]] en afval van een klif gooit. In de context van serieuze muziek brengt dit een onverwachte vorm van humor. Het is een manier van loslaten, destructief, maar ook helend. Haar IJslandse roots en diepe verbondenheid met de natuur versterken de zeggingskracht van het geheel. Thema’s als [[puin\|puin]], [[ecologie\|ecologie]] en transformatie komen in haar muziek op poëtische wijze samen.
 
 In een interview uit ze haar verbazing over het idee dat elektronische muziek geen ziel zou hebben. Ze stelt: _“You can't blame the computer if there is no soul in the music. It's because nobody put it there”_ (Björk, z.d.). Hier spreekt een authentieke motivatie — een creatieve energie die aanstekelijk werkt. Die energie komt op een andere manier tot uiting wanneer ze samenwerkt met anderen. Het is dat onvoorwaardelijke enthousiasme dat ze overbrengt op de muzikanten om haar heen.
 
-Dat enthousiasme kunnen we ook meenemen in onze [[educatie\|lespraktijk]]. Het is iets wat zich moeilijk laat meten of vangen. Het heeft iets theatraal|theatraals, maar schuilt tegelijk in iets diepers: geloof en betrokkenheid.
+Dat enthousiasme kunnen we ook meenemen in onze [[educatie\|lespraktijk]]. Het is iets wat zich moeilijk laat meten of vangen. Het heeft iets theatraal, maar schuilt tegelijk in iets diepers: geloof en betrokkenheid.
 
 Door oprecht te geloven in de leerling, creëren we een gevoel van geborgenheid en vertrouwen. We ondersteunen niet enkel het leerproces, maar ook het proces van worden — van betekenis geven, van ruimte scheppen. Juist door die authentieke motivatie aan te spreken, helpen we leerlingen zich te oriënteren in een wereld die voortdurend verandert.
 

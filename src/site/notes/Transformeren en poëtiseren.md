@@ -14,7 +14,7 @@ Kan het zijn dat [[puin\|Puin]] ons juist opvalt door het contrast met de gladde
 
 De factor [[tijd\|Tijd]] speelt dus een belangrijke rol. Aan [[puin\|Puin]] kunnen we allerlei sporen aflezen: wie het heeft gebruikt, wat het doel was, hoe het is afgebroken, en zelfs hoeveel ratten eraan hebben geknaagd. [[puin\|Puin]] vertelt verhalen, niet ondanks maar dankzij zijn afbraak.
 
-Ook [[Kurt Schwitters\|Kurt Schwitters]] maakte gebruik van verwering. Voor zijn latere Merz installaties verzamelde hij allerlei materiaal dat door de zee was uitgespuwd. Hij werkte niet alleen met drijfhout en papier uit noodzaak – omdat verf te duur was – maar ook uit fascinatie voor het verweerde en het afgedankte. Hij schreef: “Inmiddels heb ik een grote verzameling van zulk papier en hout aangelegd, samen met soortgelijke dingen die de zee heeft voortgebracht – stenen, algen, zeesterren – allemaal in sterk verweerde toestand. En daarmee maak ik amusante composities op de ruwe houten wanden en margarinekisten van mijn huis.”
+Ook [[Kurt Schwitters\|Kurt Schwitters]] maakte gebruik van verwering. Voor zijn latere _Merz_ installaties verzamelde hij allerlei materiaal dat door de zee was uitgespuwd. Hij werkte niet alleen met drijfhout en papier uit noodzaak – omdat verf te duur was – maar ook uit fascinatie voor het verweerde en het afgedankte. Hij schreef: “Inmiddels heb ik een grote verzameling van zulk papier en hout aangelegd, samen met soortgelijke dingen die de zee heeft voortgebracht – stenen, algen, zeesterren – allemaal in sterk verweerde toestand. En daarmee maak ik amusante composities op de ruwe houten wanden en margarinekisten van mijn huis.”
 
 [[Bibliografie\|Bibliografie]]
 

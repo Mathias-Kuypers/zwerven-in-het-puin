@@ -4,7 +4,7 @@
 
 ### Kapitalisme digitaliseert hoe staan we er in?
 
-Zoals we beschreven in de tekst over [[hyperobject\|hyperobjecten]], bevinden we ons niet enkel ín een hyperobject, maar ook middenin een kapitalistisch systeem. We kunnen ons daar niet zomaar van losmaken. Het systeem is verweven met onze dagelijkse handelingen en zet ons aan tot kopen. Bij het aanschaffen van nieuwigheden komen endorfines vrij  biochemische beloningen die ons gedrag aanmoedigen. En zodra we toegeven aan deze verleiding, wordt het ons in de digitale wereld nog moeilijker gemaakt om eruit te stappen.
+Zoals beschreven werd in de tekst over [[hyperobject\|hyperobjecten]], bevinden we ons niet enkel ín een hyperobject, maar ook middenin een kapitalistisch systeem. We kunnen ons daar niet zomaar van losmaken. Het systeem is verweven met onze dagelijkse handelingen en zet ons aan tot kopen. Bij het aanschaffen van nieuwigheden komen endorfines vrij en biochemische beloningen die ons gedrag aanmoedigen. En zodra we toegeven aan deze verleiding, wordt het ons in de digitale wereld nog moeilijker gemaakt om eruit te stappen.
 
 Zoals Katleen Gabriels scherp stelt in Onlife (Gabriels, 2016), blijven algoritmes ons bestoken met advertenties die onze consumptiedrang versterken. Ze creëren een omgeving waarin we continu worden uitgenodigd om verder te consumeren of we dat nu willen of niet. In deze context is het moeilijk om werkelijk autonoom te handelen.
 

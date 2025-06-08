@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/porjecten/trash-score/","dgPassFrontmatter":true}
 ---
 
-Dit is een onderdeel van een onderzoek waaraan ik heb deelgenomen voor de materialenbank. Dit is een onderdeel van de school, waarin werd gevraagd verschillende materialen te onderzoeken. Ik koos voor afval en hoe we het belang hiervan kunnen inzien.
+Dit is een onderdeel van een onderzoek waaraan ik heb deelgenomen voor de materialenbank. Dit is een onderdeel van The School, waarin werd gevraagd verschillende materialen te onderzoeken. Ik koos voor afval en hoe we het belang hiervan kunnen inzien.
 
 Vervolgens besloot ik inspiratie te halen bij [[kunstenaars/Yoko Ono\|Yoko Ono]]'s "Grapefruit".
 

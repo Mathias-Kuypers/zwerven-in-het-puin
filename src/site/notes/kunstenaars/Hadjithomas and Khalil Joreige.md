@@ -12,6 +12,6 @@ De gelaagdheid van het beeld, zowel letterlijk als figuurlijk, maakt het werk kr
 
 Zoals eerder benoemd in het rizoom, vormt deze afvalmassa een hedendaags hyperobject (Morton, 2013): iets dat ons handelen overstijgt in tijd en ruimte. Deze plastieken, deze kapotte restanten van het alledaagse, zullen ons overleven. Zij zijn de nieuwe sedimentlagen van het antropoceen, ons erfgoed in polymeren en chemie.
 
-De esthetiek van _A State_ verleidt, maar ook confronteert. We kijken naar afval zoals we naar een landschap kijken, of naar een schilderij. En precies daar, in die schoonheid, sluipt de verstoring binnen. Wat als dit onze nieuwe horizon is?
+De esthetiek van _A State_ verleidt, maar ook confronteert ze. We kijken naar afval zoals we naar een landschap kijken, of naar een schilderij. En precies daar, in die schoonheid, sluipt de verstoring binnen. Wat als dit onze nieuwe horizon is?
 
 ![image3.png](/img/user/image3.png)

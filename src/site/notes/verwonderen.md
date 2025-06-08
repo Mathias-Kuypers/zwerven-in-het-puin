@@ -4,7 +4,7 @@
 
 ## Verwondering als oerervaring van verbinding
 
-Hoe ontstaat verwondering? In _The Matter of Wonder_ stelt filosofe Loriliai Biernacki dat verwondering voortkomt uit het _ik_, dat als een natuurlijke, oerkracht in de mens aanwezig is. Wanneer we ons verwonderen, wordt dit _ik_ één met alles wat we waarnemen. Deze ervaring is niet louter rationeel, maar fundamenteel existentieel: alles wat we zien en ervaren raakt verweven met hoe we onszelf voelen en beleven. Verwondering is volgens Biernacki dan ook niet zomaar een mentale toestand, maar een diep inzicht, moeilijk in woorden te vatten, dat ons verbindt met de wereld op een niet-hiërarchische en affectieve manier (Biernacki, 2023).
+Hoe ontstaat verwondering? In _The Matter of Wonder_ stelt filosofe Loriliai Biernacki dat verwondering voortkomt uit het _ik_, dat als een natuurlijke, oerkracht in de mens aanwezig is. Wanneer we ons verwonderen, wordt dit _ik_ één met alles wat we waarnemen. Deze ervaring is niet louter rationeel, maar fundamenteel existentieel: alles wat we zien en ervaren, raakt verweven met hoe we onszelf voelen en beleven. Verwondering is volgens Biernacki dan ook niet zomaar een mentale toestand, maar een diep inzicht, moeilijk in woorden te vatten, dat ons verbindt met de wereld op een niet-hiërarchische en affectieve manier (Biernacki, 2023).
 
 Verwondering vraagt dus om nabijheid tot onszelf. Als we die verbinding verliezen, verliezen we ook onze capaciteit tot verwonderen.
 

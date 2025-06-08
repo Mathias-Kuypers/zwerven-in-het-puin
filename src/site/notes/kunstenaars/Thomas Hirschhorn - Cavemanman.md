@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/kunstenaars/thomas-hirschhorn-cavemanman/","dgPassFrontmatter":true}
 ---
 
-Thomas Hirschhorns installatie is groots van schaal maar opgebouwd uit uiterst banale, vergankelijke materialen: karton, puin, tape, plastic en wegwerpproducten. Deze materiaalkeuze is bewust: ze onttrekt de aandacht van de 'kunstwaarde' van het werk in traditionele zin geen brons, geen canvas, geen 'edelheid' en richt de blik resoluut op de inhoud en de boodschap.
+Thomas Hirschhorn's installatie is groots van schaal maar opgebouwd uit uiterst banale, vergankelijke materialen: karton, puin, tape, plastic en wegwerpproducten. Deze materiaalkeuze is bewust: ze onttrekt de aandacht van de 'kunstwaarde' van het werk in traditionele zin geen brons, geen canvas, geen 'edelheid' en richt de blik resoluut op de inhoud en de boodschap.
 
 Wanneer Hirschhorn spreekt over het immersieve karakter van zijn werk, benadrukt hij dat het hem niet gaat om het uitlokken van een specifieke reactie:
 
