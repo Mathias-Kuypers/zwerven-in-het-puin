@@ -6,7 +6,7 @@
 
 Het werk duidt zo niet alleen op het ecologische belang voor de opwarming van de aarde, maar krijgt door de plaatsing in de ruimte een extra betekenislaag. Het zet de contrasten met de maatschappij scherper neer. De presentatie van het werk suggereert dat de strandgangers onverschillig staan tegenover deze problematiek, alsof het zich nog onder de zeespiegel bevindt. Deze vraag of mensen zich bewust zijn van hun handelen met afval hebben we ons al eerder gesteld in het deel over [[puin\|puin]] . Een eenduidig antwoord hierop is complex. Het werk overstijgt het dubbele karakter van zeeafval door het poëtisch te maken. Het werk slaagt er echter in om het dubbele karakter van afval tegelijk verwoestend en fascinerend te overstijgen door het op een poëtische manier te transformeren tot een kunstwerk dat aanzet tot denken.
 
-Fowkes, M., & Fowkes, R. (2022). _Art and climate change_. Thames & Hudson.![[1image.png\|1image.png]]
+Fowkes, M., & Fowkes, R. (2022). _Art and climate change_. Thames & Hudson.![1image.png](/img/user/1image.png)
 
 [[Bibliografie\|Bibliografie]]
 
