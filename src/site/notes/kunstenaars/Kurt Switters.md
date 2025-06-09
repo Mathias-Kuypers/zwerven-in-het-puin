@@ -14,7 +14,9 @@ Het gaat hier niet om het aanreiken van één waarheid of interpretatie, maar om
 Die opvatting van een steeds veranderend, onaf proces sluit nauw aan bij het rizomatisch denken. Zoals het rizoom voortdurend nieuwe vertakkingen maakt, groeit en verandert, zo ook het werk van Schwitters, én het leerproces binnen een kunsteducatieve context: niet lineair, niet hiërarchisch, maar in continue beweging.
 
 ![Pasted image 20250609130056.png](/img/user/Pasted%20image%2020250609130056.png)
-
+(designboom, ravail khan I. (2024, september 27))
 [[Bibliografie\|Bibliografie]]
+
+designboom, ravail khan I. (2024, september 27). Inside kurt schwitters’ merz barn, the dada artist’s final work, revived by factum foundation. _Designboom | Architecture & Design Magazine_. [https://www.designboom.com/art/interview-factum-foundation-revive-kurt-schwitters-final-dada-artwork-merz-barn-uk-adam-lowe-09-27-2024/](https://www.designboom.com/art/interview-factum-foundation-revive-kurt-schwitters-final-dada-artwork-merz-barn-uk-adam-lowe-09-27-2024/)
 
 Schwitters, K. (with Sprengel-Museum). (2007). _Merzgebiete: Kurt Schwitters und seine Freunde; [Sprengel-Museum Hannover, 8. Oktober 2006 - 4. Februar 2007; Museum Boijmans Van Beuningen, Rotterdam, 24. Februar - 13. Mai 2007]_ (K. Orchard, Red.).

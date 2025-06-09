@@ -16,5 +16,7 @@ Zoals eerder benoemd in het rizoom, vormt deze afvalmassa een hedendaags hyperob
 De esthetiek van _A State_ verleidt, maar ook confronteert ze. We kijken naar afval zoals we naar een landschap kijken, of naar een schilderij. En precies daar, in die schoonheid, sluipt de verstoring binnen. Wat als dit onze nieuwe horizon is?
 
 ![image3.png](/img/user/image3.png)
+ (Fowkes, M., & Fowkes, R. (2022))
+ 
 [[Bibliografie\|Bibliografie]]
 Fowkes, M., & Fowkes, R. (2022). _Art and climate change_. Thames & Hudson.

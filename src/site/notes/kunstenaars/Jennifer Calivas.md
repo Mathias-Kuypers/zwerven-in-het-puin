@@ -10,8 +10,10 @@ Juist door deze spanningsboog tussen zichtbaarheid en onzichtbaarheid, tussen op
 
 Daarin ligt een parallel met ons [[puin\|afval:]] ook dat probeert zich vaak stilletjes terug te trekken in het landschap, te vergaan, een te worden met zijn omgeving. Maar net zoals Zig’s draadontspanner de fictie doorprikt, doorprikt ook de blijvende zichtbaarheid van afval onze illusie van verdwijnen. Beide confronteren ons met aanwezigheid, zelfs in camouflage.
 
+
+![Pasted image 20250607114523.png](/img/user/Pasted%20image%2020250607114523.png)![Pasted image 20250607114536.png](/img/user/Pasted%20image%2020250607114536.png)![Pasted image 20250607120115.png](/img/user/Pasted%20image%2020250607120115.png)
+(Jenny Calivas 2025)
+
 [[Bibliografie\|Bibliografie]]
 
 _Jenny Calivas—Self-Portraits While Buried—Exhibitions—Yancey Richardson_. (z.d.). Geraadpleegd 9 juni 2025, van [https://www.yanceyrichardson.com/exhibitions/jenny-calivas](https://www.yanceyrichardson.com/exhibitions/jenny-calivas)
-
-![Pasted image 20250607114523.png](/img/user/Pasted%20image%2020250607114523.png)![Pasted image 20250607114536.png](/img/user/Pasted%20image%2020250607114536.png)![Pasted image 20250607120115.png](/img/user/Pasted%20image%2020250607120115.png)

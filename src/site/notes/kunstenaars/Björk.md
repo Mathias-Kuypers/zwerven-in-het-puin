@@ -18,6 +18,7 @@ Zoals Hannah Arendt beschrijft in _The Crisis in Education_ (1958):
 
 In dat licht wordt de rol van de leraar meer dan die van een kennisoverdrager. Ze wordt die van een poëtische gids: iemand die gelooft in de kracht van [[verbeelding\|verbeelding]], van [[puin\|puin]] als materiaal, en van [[muziek\|muziek]] als ziel.
 ![Pasted image 20250609130128.png](/img/user/Pasted%20image%2020250609130128.png)
+(björk (Regisseur). (2007, juli 1))
 
 [[Bibliografie\|Bibliografie]]
 

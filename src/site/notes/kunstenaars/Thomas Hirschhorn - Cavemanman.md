@@ -26,11 +26,9 @@ Het werk bestaat uit meerdere lagen:
 
 **Het afval als verborgen probleem** is letterlijk en figuurlijk aanwezig. De grot verbergt, net zoals onze samenleving afval verbergt onder de grond uit het zicht, maar niet uit het systeem. De installatie dwingt de toeschouwer zich door dit afvallandschap te bewegen, wat aanzet tot reflectie over onze ontkenning en verdringing van ecologische en sociale problemen.
 
-Hirschhorns kunstwerk is meer dan één enkel idee; het is een samenspel van gedachten en tegenstellingen. Het werk fascineert door zijn veelzijdigheid: tastbaar maar ongrijpbaar, alledaags in materiaal maar groots in impact. En hoewel het vergankelijk is, raakt het aan tijdloze thema's.
-
-(Hirschhorn, 2013)
+Hirschhorns kunstwerk is meer dan één enkel idee; het is een samenspel van gedachten en tegenstellingen. Het werk fascineert door zijn veelzijdigheid: tastbaar maar ongrijpbaar, alledaags in materiaal maar groots in impact. En hoewel het vergankelijk is, raakt het aan tijdloze thema's.(Hirschhorn, 2013)
 ![Pasted image 20250606104638.png](/img/user/Pasted%20image%2020250606104638.png)
-
+(Hirschhorn, 2013)
 
 [[Bibliografie\|Bibliografie]]
 

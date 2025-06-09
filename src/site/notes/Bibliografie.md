@@ -21,6 +21,7 @@ Center for the Living Things. (z.d.). _Diana Lelonek_. Geraadpleegd 6 juni 2025,
 
 DBNL. (z.d.). _Paul Pelckmans De ontologie van het afval, Streven. Jaargang 66_. DBNL; DBNL. Geraadpleegd 27 april 2025, van [https://www.dbnl.org/tekst/_str010199901_01/_str010199901_01_0022.php](https://www.dbnl.org/tekst/_str010199901_01/_str010199901_01_0022.php)[[puin\|puin]]
 
+designboom, ravail khan I. (2024, september 27)
 Dewey, J. (2005). _Art as experience_. Berkeley Publishing Group. (Oorspronkelijk werk gepubliceerd in 1934)
 
 Fareskhdouj. (2022, februari 6). “Koyaanisqatsi”, A Film That Cannot Be Read Like A Novel. P.1. _Film Cut_. [https://medium.com/film-cut/koyaanisqatsi-a-film-that-cannot-be-read-as-a-novel-p-1-3a14db29b42c](https://medium.com/film-cut/koyaanisqatsi-a-film-that-cannot-be-read-as-a-novel-p-1-3a14db29b42c)
@@ -34,6 +35,8 @@ Gabriels, Katleen. _Onlife: hoe de digitale wereld je leven bepaalt_. Tielt: Lan
 Garcia, T., Cogburn, J., & Ohm, M. A. (2022). _Form and Object: A Treatise on Things_. Edinburgh University Press. [https://doi.org/10.1515/9780748681518](https://doi.org/10.1515/9780748681518)
 
 Jenny Calivas—Self-Portraits While Buried—Exhibitions—Yancey Richardson_. (z.d.). Geraadpleegd 9 juni 2025, van [https://www.yanceyrichardson.com/exhibitions/jenny-calivas]([https://www.yanceyrichardson.com/exhibitions/jenny-calivas](https://www.yanceyrichardson.com/exhibitions/jenny-calivas))
+
+_Koyaanisqatsi | Museum of Arts and Design_. (z.d.). Geraadpleegd 9 juni 2025, van [https://madmuseum.org/events/koyaanisqatsi](https://madmuseum.org/events/koyaanisqatsi)
 
 Mackay, E. (2017, oktober 17). _Björk Is a Music Video Genius. Here Are 10 That Prove It._ Pitchfork. [https://pitchfork.com/thepitch/bjork-is-a-music-video-genius-heres-10-that-prove-it/](https://pitchfork.com/thepitch/bjork-is-a-music-video-genius-heres-10-that-prove-it/) [[puin\|puin]]
 
