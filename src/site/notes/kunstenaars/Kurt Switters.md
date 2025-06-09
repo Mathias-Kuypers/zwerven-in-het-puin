@@ -13,7 +13,7 @@ Het gaat hier niet om het aanreiken van één waarheid of interpretatie, maar om
 
 Die opvatting van een steeds veranderend, onaf proces sluit nauw aan bij het rizomatisch denken. Zoals het rizoom voortdurend nieuwe vertakkingen maakt, groeit en verandert, zo ook het werk van Schwitters, én het leerproces binnen een kunsteducatieve context: niet lineair, niet hiërarchisch, maar in continue beweging.
 
-![Pasted image 20250606105416.png](/img/user/Pasted%20image%2020250606105416.png)
+![Pasted image 20250609130056.png](/img/user/Pasted%20image%2020250609130056.png)
 
 [[Bibliografie\|Bibliografie]]
 

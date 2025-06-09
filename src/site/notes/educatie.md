@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/educatie/","dgPassFrontmatter":true}
 ---
 
-De vraag die we ons moeten stellen is: hoe kunnen we [[verwonderen\|verwondering]] opwekken binnen een lespraktijk, terwijl deze [[verwonderen\|verwondering]] tegelijkertijd voort moet komen uit een intrinsieke motivatie van het kind? Om die [[verwonderen\|verwondering]] te stimuleren, kunnen we verschillende impulsen aanreiken. Zo kunnen we enkele regels opstellen die het speelveld afbakenen en duidelijk maken wat we wel en niet verwachten. Maar staat dit niet haaks op het idee van verwondering?
+De vraag die we ons moeten stellen is: hoe kunnen we [[Verwonderen\|verwondering]] opwekken binnen een lespraktijk, terwijl deze [[Verwonderen\|verwondering]] tegelijkertijd voort moet komen uit een intrinsieke motivatie van het kind? Om die [[Verwonderen\|verwondering]] te stimuleren, kunnen we verschillende impulsen aanreiken. Zo kunnen we enkele regels opstellen die het speelveld afbakenen en duidelijk maken wat we wel en niet verwachten. Maar staat dit niet haaks op het idee van verwondering?
 
 Een kind kan immers verwonderd raken door het kleinste detail dat op zijn pad komt. Wat is dan de meest geschikte onderwijsvorm?
 

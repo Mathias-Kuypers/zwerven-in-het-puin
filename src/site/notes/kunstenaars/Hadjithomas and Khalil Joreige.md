@@ -4,7 +4,8 @@
 
 **A State**
 
-> is een fotografische compositie opgebouwd uit materiaal afkomstig uit een boorkern, gewonnen op een vuilstortplaats in Tripoli. Deze stortplaats, grenzend aan de zee, fungeerde vijfentwintig jaar lang als bestemming voor het stedelijk afval van Tripoli – een generatie lang, onafgebroken en ongefilterd. Geen recyclage, geen verwerking, enkel ophoping. Jarenlange blootstelling aan de elementen heeft dit residu omgevormd tot een nieuw soort landschap: heuvels van afval, tot wel vijfenveertig meter boven de zeespiegel.
+ is een fotografische compositie opgebouwd uit materiaal afkomstig uit een boorkern, gewonnen op een vuilstortplaats in Tripoli. Deze stortplaats, grenzend aan de zee, fungeerde vijfentwintig jaar lang als bestemming voor het stedelijk afval van Tripoli – een generatie lang, onafgebroken en ongefilterd. Geen recyclage, geen verwerking, enkel ophoping. Jarenlange blootstelling aan de elementen heeft dit residu omgevormd tot een nieuw soort landschap: heuvels van afval, tot wel vijfenveertig meter boven de zeespiegel.
+ (Fowkes, M., & Fowkes, R. (2022))
 
 De fotografische composities opgebouwd uit honderden beelden van de boorkernen – creëren een hyperrealistisch, bijna picturaal effect. Het beeld lijkt een stilstaand schilderij, een zorgvuldig geënsceneerd stilleven. Maar achter deze esthetiek schuilt een afbraakproces: organisch materiaal vervaagt en verdwijnt. Wat rest, zijn de techno-fossielen – brokstukken van menselijke consumptie die hun composteerbaarheid al lang verloren zijn.
 
@@ -15,3 +16,5 @@ Zoals eerder benoemd in het rizoom, vormt deze afvalmassa een hedendaags hyperob
 De esthetiek van _A State_ verleidt, maar ook confronteert ze. We kijken naar afval zoals we naar een landschap kijken, of naar een schilderij. En precies daar, in die schoonheid, sluipt de verstoring binnen. Wat als dit onze nieuwe horizon is?
 
 ![image3.png](/img/user/image3.png)
+[[Bibliografie\|Bibliografie]]
+Fowkes, M., & Fowkes, R. (2022). _Art and climate change_. Thames & Hudson.

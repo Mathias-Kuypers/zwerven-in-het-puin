@@ -33,6 +33,8 @@ Gabriels, Katleen. _Onlife: hoe de digitale wereld je leven bepaalt_. Tielt: Lan
 
 Garcia, T., Cogburn, J., & Ohm, M. A. (2022). _Form and Object: A Treatise on Things_. Edinburgh University Press. [https://doi.org/10.1515/9780748681518](https://doi.org/10.1515/9780748681518)
 
+Jenny Calivas—Self-Portraits While Buried—Exhibitions—Yancey Richardson_. (z.d.). Geraadpleegd 9 juni 2025, van [https://www.yanceyrichardson.com/exhibitions/jenny-calivas]([https://www.yanceyrichardson.com/exhibitions/jenny-calivas](https://www.yanceyrichardson.com/exhibitions/jenny-calivas))
+
 Mackay, E. (2017, oktober 17). _Björk Is a Music Video Genius. Here Are 10 That Prove It._ Pitchfork. [https://pitchfork.com/thepitch/bjork-is-a-music-video-genius-heres-10-that-prove-it/](https://pitchfork.com/thepitch/bjork-is-a-music-video-genius-heres-10-that-prove-it/) [[puin\|puin]]
 
 Mendes, S. (Regisseur). (2000, januari 20). _American Beauty_ [Drama]. Dreamworks Pictures, Jinks/Cohen Company.[[puin\|puin]]
